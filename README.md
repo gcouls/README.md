@@ -1,3 +1,4 @@
 mylittlemushroom.
 ⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘⁘
-![4c153facb70f062f771731a535484912](https://github.com/user-attachments/assets/5cd09726-13cb-4c58-8faf-83c084d66bb6)
+<img width="526" height="950" alt="Screenshot 2025-10-19 134015" src="https://github.com/user-attachments/assets/0ce96a54-aa9a-4a6f-9fd5-9e6bcece0b27" />
+
